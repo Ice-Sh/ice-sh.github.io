@@ -6,3 +6,7 @@
 ![adventure_2_pic](https://user-images.githubusercontent.com/70689572/161050651-6ee11210-d87f-49a2-9c75-fdae1399cb79.PNG)
 ![adventure_3_pic](https://user-images.githubusercontent.com/70689572/161051245-21338f58-2436-4f69-ad51-005b86710eae.PNG)
 ![adventure_4_pic](https://user-images.githubusercontent.com/70689572/161051805-3e266af9-88bf-4109-97fc-07189fb30f57.PNG)
+![adventure_5_pic](https://user-images.githubusercontent.com/70689572/161207207-b50ff311-fd7b-48c7-9a7b-4fc74be9aa9d.PNG)
+![adventure_6_pic](https://user-images.githubusercontent.com/70689572/161207557-464c57ba-cab2-4bc3-921e-8579da2773b4.PNG)
+![adventure_7_pic](https://user-images.githubusercontent.com/70689572/161208775-583a5167-7534-4714-a581-83110566e60a.png)
+![adventure_8_pic](https://user-images.githubusercontent.com/70689572/161209875-fde9bb7f-d211-4ef6-ac3e-58b1e15a86f3.png)
