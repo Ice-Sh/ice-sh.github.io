@@ -24,3 +24,5 @@ Chess club project below:
 
 ![1624341040_29-phonoteka_org-p-shakhmati-oboi-krasivo-32](https://user-images.githubusercontent.com/70689572/161687115-07434a4c-3937-4e3c-b3d0-b10cfa52aa0a.jpg)
 ![knight club logo](https://user-images.githubusercontent.com/70689572/161694621-97e09091-cbe7-47ed-bbfc-4dd8e7271dd4.png)
+![1603669871_46-p-fon-shakhmati-70 копия](https://user-images.githubusercontent.com/70689572/161699217-4f4c7b00-bb2e-4e25-a2bd-df15fec96b8e.png)
+![chess-8k-2r копия](https://user-images.githubusercontent.com/70689572/161711025-f2bb8f13-a9c9-4b17-83a7-9949d4c8ee18.jpg)
