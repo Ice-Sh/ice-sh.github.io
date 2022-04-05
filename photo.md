@@ -19,3 +19,8 @@
 ![adventure_15](https://user-images.githubusercontent.com/70689572/161391828-2f76489e-23ce-4fc7-bd1b-a105bd166157.png)
 ![adventure_16](https://user-images.githubusercontent.com/70689572/161391922-43464085-cb4d-4269-97fb-990a5a46ee9c.png)
 ![-Lc5pjSH6fLuhUkx6M8s](https://user-images.githubusercontent.com/70689572/161393359-acfb2acc-ed9c-4650-844a-5359a3894850.jpeg)
+
+Chess club project below:
+
+![1624341040_29-phonoteka_org-p-shakhmati-oboi-krasivo-32](https://user-images.githubusercontent.com/70689572/161687115-07434a4c-3937-4e3c-b3d0-b10cfa52aa0a.jpg)
+![knight club logo](https://user-images.githubusercontent.com/70689572/161694621-97e09091-cbe7-47ed-bbfc-4dd8e7271dd4.png)
