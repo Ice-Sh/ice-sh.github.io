@@ -38,4 +38,10 @@ Chess club project below:
 ![031](https://user-images.githubusercontent.com/70689572/162428113-2abd0e3d-c923-4316-8756-6e055243f46d.jpg)
 ![30th-birthday-party-ideas-2](https://user-images.githubusercontent.com/70689572/162428254-29ef5142-991a-438a-96b3-c67db8c589de.jpg)
 ![unnamed](https://user-images.githubusercontent.com/70689572/162428484-04d1f96e-09d2-4180-89c3-9042cd4fc10e.jpg)
+![Amanda Geller](https://user-images.githubusercontent.com/70689572/162576878-3de463ab-37ef-45fa-8706-5d1c49c8c63c.jpg)
+![Simen_Agdestein](https://user-images.githubusercontent.com/70689572/162577159-954c8d12-d629-48e4-8f20-574fba0a0355.jpg)
+![ANASTASIA GUTSKO](https://user-images.githubusercontent.com/70689572/162577214-1de3a308-c34e-4c5b-be4b-70ec592f2624.jpg)
+![Tigran_Azaryan](https://user-images.githubusercontent.com/70689572/162577268-605970cb-9f0b-4fce-a2e6-113f30c51205.jpg)
+![Monica Bing](https://user-images.githubusercontent.com/70689572/162577310-6b910b89-5938-4142-83bf-ced4a29161fb.jpeg)
+![Alishan_Forest_Trail_阿里山森林步道_-_panoramio](https://user-images.githubusercontent.com/70689572/162578111-f6d15be2-a7db-485d-9c16-ed65b1930e9d.jpg)
 
